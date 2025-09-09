@@ -1,1 +1,1 @@
-Hola somos Pablo y Gabriela
+Hola somos Pablito y Gaby
