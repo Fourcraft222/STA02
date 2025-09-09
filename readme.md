@@ -1,1 +1,1 @@
-Hola somos Pablito y Gaby
+Holi somo sta02 (pablito y gaby)
